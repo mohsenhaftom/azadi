@@ -1,0 +1,2 @@
+# azadi
+panale sakhte khodkar
